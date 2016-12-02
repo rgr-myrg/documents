@@ -114,3 +114,39 @@ A few more jumps and he would finally decode the Elders’ Pictogram language as
 
 “The complete picture.” He thought to himself.
 
+Jump v1.0
+
+Awki had been a highly respected architect, historian, and archeologist and part of the original team in charge of preserving and recreating milestones in human history complete with landscapes and important landmarks. His team had single-handedly architected and developed the ubiquitous Jump platform that brought amazing experiences to the new world.
+
+“A fully immersive platform for experiencing Earth as never before.”
+
+“Explore history from a totally personal perspective and discover first-hand the incredible sites and richness of the blue planet.”
+
+“Jump Immersive Reality delivers the whole world within your reach.”
+
+“Jump Anywhere.”
+
+Jump v1.0 eventually achieved complete realism. Users could jump to a mod of their choice and immerse themselves into scenes indistinguishable from waking reality. It was the first simulation of its kind. Loaded with features that allowed users to interact with inhabitants of the simulation as if they were indeed real.
+
+Fearing misuse the government restricted programming of scenes and mods only to those with top secret security clearance.
+
+[Explain Jump in depth.]
+
+Command Control
+
+One day, special agents from Command Control arrived at her father’s residence to inform him Awki was missing and a find-and-rescue operation had been launched. Emi’s father requested control agents to put him through the Central Unit to expedite the search. He repeatedly argued, to no avail, the search operation was disjointed and Command Control was short in resources not to mention out of jurisdiction in their execution. 
+
+It was customary for control agents to call on the Central Unit when necessary but for various reasons this operation was restricted and Emi’s father did not have enough clearance to even approach the Central Unit himself. Being a low-level commander at the time, he was relegated to waiting until final completion of the first find-and-rescue operation before initiating his own search mission.
+
+Later on, Emi’s father was able to launch his own search and was indeed able to link back to Awki’s final code prints within the I. R. realm but a physical location could not be determined.
+
+Awki had been working on Jump Immersive Reality v2.0 when he disappeared without a trace. 
+
+Tragically, Awki was eventually found by control agents but his family was not immediately notified due to high security concerns. His lifeless body suspended in a secret compartment within his lab. His solar plexus still attached to a Jump line.
+
+“Inventor of Jump Found with Self-inflicted Gunshot Wounds:  Investigation Pending.”
+
+“Jump v2.0 Delayed Due to Tragic Death of Creator.”
+
+Emi read news headlines aloud to herself over and over, but the content did not match what she believed in her heart. Awki would never leave unfinished projects abruptly, and  worse, he would never leave her behind in this way. 
+
