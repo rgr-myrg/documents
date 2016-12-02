@@ -22,4 +22,4 @@ No one could foresee how that which was touted as progress and limitless power w
 
 Such powers of deception in the end almost finished off humanity for good. After all, if all you believe is true, how can you deny your own thoughts and words?  
 
-Huma had systematically entered into our collective consciousness. 
+Huma had triumphantly entered into our collective consciousness. 
