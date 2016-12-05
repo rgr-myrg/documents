@@ -1,8 +1,6 @@
-There was a time, long ago, when the sunlight bathed the surface of the entire planet. 
+﻿Eons ago the sunlight bathed the surface of the entire planet. Brilliant indigo auroras waved over the mountains while the mist of a distant waterfall gave way to rainbows high above the rocks. Blue whales swam on crystal oceans under the deep sky at dawn as hundreds of stars lighted the heavens above. Lush vegetation sprung to life everywhere. 
 
-Beautiful indigo lights waved over the mountains while the mist of a distant waterfall gave way to rainbows high above the rocks. 
-
-Blue whales swam on crystal clear oceans under the deep sky at dawn. Hundreds of stars lighted the Heavens above and lush vegetation sprung to life below. All were consciously in touch with the Universe. Time and prosperity seemed boundless.
+All were consciously in touch with the Universe. Time and prosperity seemed boundless.
 
 The glow of the light permeated every corner of our heavenly body creating music, powering the force of the winds and oceans, and providing abundant energy to all beings large and small.
 
