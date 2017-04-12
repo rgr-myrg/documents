@@ -1,14 +1,12 @@
 Awaken The Dream
 
-Their eyes sparkled with wonder as the warm gleam of iridescent lights illuminated their path. Gazing ahead they caught sight of a dream shimmering on the horizon. And so, they walked hand in hand following the path of the Light. 
+Their eyes sparkled with wonder as the warm gleam of iridescent lights illuminated their path. Gazing ahead they caught sight of a dream shimmering on the horizon. And they walked holding hands following the path to the Light. 
 
 Imagine The Light
 
-There was a time, long ago, when the sunlight bathed the surface of the entire planet. 
+﻿Eons ago the sunlight bathed the surface of the entire planet. Brilliant indigo auroras waved over the mountains while the mist of a distant waterfall gave way to rainbows high above the rocks. Blue whales swam on crystal oceans under the deep sky at dawn as hundreds of stars lighted the heavens above. Lush vegetation sprung to life everywhere. 
 
-Beautiful indigo lights waved over the mountains while the mist of a distant waterfall gave way to rainbows high above the rocks. 
-
-Blue whales swam on crystal clear oceans under the deep sky at dawn. Hundreds of stars lighted the Heavens above and lush vegetation sprung to life below. All were consciously in touch with the Universe. Time and prosperity seemed boundless.
+All were consciously in touch with the Universe. Time and prosperity seemed boundless.
 
 The glow of the light permeated every corner of our heavenly body creating music, powering the force of the winds and oceans, and providing abundant energy to all beings large and small.
 
@@ -161,4 +159,25 @@ Tragically, Awki was eventually found by control agents but his family was not i
 “Jump v2.0 Delayed Due to Tragic Death of Creator.”
 
 Emi read news headlines aloud to herself over and over, but the content did not match what she believed in her heart. Awki would never leave unfinished projects abruptly, and  worse, he would never leave her behind in this way. 
+
+Notes
+
+﻿Their eyes sparkled with wonder as the warm gleam of iridescent lights illuminated their path. Gazing ahead they caught sight of a dream shimmering on the horizon. And they walked holding hands approaching the entrance to the Light. 
+
+Eons ago the sunlight bathed the surface of the entire planet. Brilliant indigo auroras waved over the mountains while the mist of a distant waterfall gave way to rainbows high above the rocks. Blue whales swam on crystal oceans under the deep sky at dawn as hundreds of stars lighted the heavens above. 
+
+On earth, the sun powered the force of the winds and oceans, fiery, awesome, its glow providing abundant subsistence to creatures large and small. Nothing escaped the overflowing energy that poured from the mighty star. 
+
+Lush vegetation sprung to life everywhere. 
+
+The light infused its glow onto every surface of our heavenly body. 
+
+All beings were consciously in touch with the light twhose time and prosperity appeared boundless.
+
+The glow of the light permeated every corner of our heavenly body creating music, powering the force of the winds and oceans, and providing abundant energy to all beings large and small.
+
+﻿
+Robert gazed at her across the river whose churning waters ran red with blood. On the far bank, the woman stood facing him, motionless, solemn, her face hidden by a shroud. In her hand she gripped a blue cloth, which she now raised in honor of the sea corpses at her feet. The smell of death hung everywhere.
+
+Spirituality. The Bhagavad Gita. The Vedas. The Upanishads. There is a special spiritual current that flows through them, and it accompanies me wherever I go. I don’t consider myself religious in the traditional sense, but I recognize timeless wisdom when I see it, and I reread these ancient texts, these unfathomable pearls, every once in a while, gaining more with every reading. Those sages, seers and saints were in touch with something. Something that, in my opinion, transcends both organized religion and atheism. I’m grateful to have discovered their timeless truths, and they have helped me in the course of my life.
 

@@ -1,1 +1,1 @@
-Their eyes sparkled with wonder as the warm gleam of iridescent lights illuminated their path. Gazing ahead they caught sight of a dream shimmering on the horizon. And they walked holding hands approaching the entrance to the Light. 
+Their eyes sparkled with wonder as the warm gleam of iridescent lights illuminated their path. Gazing ahead they caught sight of a dream shimmering on the horizon. And they walked holding hands following the path to the Light.
