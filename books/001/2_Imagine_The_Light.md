@@ -1,4 +1,8 @@
-﻿Eons ago the sunlight bathed the surface of the entire planet. Brilliant indigo auroras waved over the mountains while the mist of a distant waterfall gave way to rainbows high above the rocks. Blue whales swam on crystal oceans under the deep sky at dawn as hundreds of stars lighted the heavens above. Lush vegetation sprung to life everywhere. 
+Eons ago the sunlight bathed the surface of the entire planet. 
+
+Brilliant indigo auroras waved over the mountains while the mist of a distant waterfall gave way to rainbows high above the rocks.
+
+Blue whales swam on crystal oceans under the deep sky at dawn as hundreds of stars lighted the heavens above. Lush vegetation sprung to life everywhere.
 
 All were consciously in touch with the Universe. Time and prosperity seemed boundless.
 
@@ -16,7 +20,7 @@ No one heeded the warning signs. With time our thinking became murky and confuse
 
 Our way of life had been under attack and yet no war had ever been declared.
 
-No one could foresee how that which was touted as progress and limitless power would also become humanity’s pitfall and weakness. How easily and steadfastly promises of human transformation and evolutionary breakthrough could backfire and instead replicate themselves like viruses that gradually replace its host’s thoughts with their own - unbeknownst to the host. 
+No one could foresee how that which was touted as progress and limitless power would also become humanity's pitfall and weakness. How easily and steadfastly promises of human transformation and evolutionary breakthrough could backfire and instead replicate themselves like viruses that gradually replace its host's thoughts with their own - unbeknownst to the host. 
 
 Such powers of deception in the end almost finished off humanity for good. After all, if all you believe is true, how can you deny your own thoughts and words?  
 
